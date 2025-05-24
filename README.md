@@ -1,4 +1,4 @@
-# Oh hi,👋 come in, take in the aroma of gumbo. I still have some on my stove.🍲
+# Oh hi,👋 come in, take in the aroma of gumbo. I still have some on the stove.🍲
 
 ### Grab yourself a bowl,🥣 and have a seat if you would like.🪑 Allow me to tell you a bit about myself.
 
